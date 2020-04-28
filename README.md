@@ -16,10 +16,35 @@ Change Churn-Turn Rate Grow Flow Flower Power
 # https://www.youtube.com/watch?v=zbFLtXiRSSY
 ![](https://lh3.googleusercontent.com/proxy/fW-FN65YzqMXgxQQLym-K14Qu3j7wghxs4qV1NuCbNq2REQumAyRDPZnSKIiuQBU1t7RgN5g2msnDmdWP1LlWSeHJKXU6oZVdWGJ4YqRUihIo4HGdaf4zHIQf4ce8nmax4rniO2Jja7JOjFW9tB1LmNs5jJ2)
 
-![](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7a/FibonacciRabbit.svg/800px-FibonacciRabbit.svg.png)
-
 # Luke 12:27-28 Standard Version (ESV)
 
 > 27 Consider the lilies, how they grow: they neither toil nor spin,[a] yet I tell you, even Solomon in all his glory was not arrayed like one of these.
 > 28 But if God so clothes the grass, which is alive in the field today, and tomorrow is thrown into the oven, how much more will he clothe you, O you of little faith!
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+easter bunny white rabbit
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7a/FibonacciRabbit.svg/800px-FibonacciRabbit.svg.png)
