@@ -3,9 +3,9 @@ Core Seed (Product) ^ Power of Exponential Growth (active user rate) Questions: 
 # 1. How to Code Fibonacci Formula Function? 2. How to Collect Emails? 3. How to Create a Tool title timeless truth Teuch Book Word Map they buy? How to write an order form?
 # Focus Flower MindBrainTree Leverage 1 or 2 Things & Then Max Out
 ![](https://wikimedia.org/api/rest_v1/media/math/render/svg/58ebe8b2d5551fb272cd4258940fe1e492592d02)
-
+Seed Stablity Starting Values Constants
 ![](https://wikimedia.org/api/rest_v1/media/math/render/svg/39ce4b302203aa4afd0eccf11b8ccbb207fadd06)
-
+Change Churn-Turn Rate Grow Flow Flower Power
 ![](https://wikimedia.org/api/rest_v1/media/math/render/svg/0fff1a1716fcc169546079870357f92757ade5fa)
 
 # https://en.wikipedia.org/wiki/Fibonacci_number
